@@ -1,2 +1,0 @@
-# bruceenskypomikadoin
-PO INFO
